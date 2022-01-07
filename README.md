@@ -74,14 +74,8 @@ No Need To Ask Wifi Password, HACK it..! This Cyber Security Tool, Will Hack For
 # SCREENSHOT
 
 
-![](Snapshots/0.png)
-![](Snapshots/1.png)
-![](Snapshots/2.png)
-![](Snapshots/3.png)
-![](Snapshots/4.png)
-![](Snapshots/5.png)
-![](Snapshots/6.png)
-![](Snapshots/7.png)
+![](https://1.bp.blogspot.com/-l7AY5dlAkcU/X2_-O4HVGOI/AAAAAAAADmI/004mJZs3MEIyY1RKMaTkaDNLlF7RIPIOgCLcBGAsYHQ/s805/fernwificracker.webp)
+
 
 
 
